@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حياتي قلبي ناداك في الليل
+> روحي مشتاقة والعين بتسيل
+> نارك في صدري بتشعل نيران
+> وكل نظرة منك سحر وأمان
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
